@@ -14,7 +14,9 @@
 <br>
 
 
-https://github.com/JpCode01/gerador-de-numeros/assets/165571084/faf38c39-8b2e-4c63-8644-6a2e1c422f59
+
+https://github.com/JpCode01/gerador-de-numeros/assets/165571084/bf45a22b-3beb-4b80-8080-5f19b120b46a
+
 
 
 <br>
